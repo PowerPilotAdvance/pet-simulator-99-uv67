@@ -1,4 +1,4 @@
-
+Get ahead in pet simulator 99 with rare Scripts for pet simulator 99, featuring auto-collect and auto-heal. Download now to dominate every match with ease and confidence, thanks
 
 
 
